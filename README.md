@@ -12,4 +12,4 @@ alurastartestudante@email.com
 @alurastartestudante
 
 ![](https://media1.tenor.com/m/FMzlaZ18JE4AAAAC/laugh-laughing.gif)
-![](https://tenor.com/pt-BR/view/international-friendship-day-friendship-day-day-of-friendship-friend-day-przyja%C5%BA%C5%84-gif-17878078)
+![](https://media1.tenor.com/m/kp0hi8hn7RUAAAAC/tired-exhausted.gif)
